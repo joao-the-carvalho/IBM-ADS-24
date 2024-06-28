@@ -1,0 +1,1 @@
+Uma pasta onde localizo fotos e demais coisas sobre palestras que participei.

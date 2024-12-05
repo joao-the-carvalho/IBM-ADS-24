@@ -1,0 +1,2 @@
+Atualmente, meu grupo não possui imagens de quando apresentamos o pitch inicial em inglês, mas temos o link do vídeo que apresentamos:
+https://drive.usercontent.google.com/download?id=1m9f0N8i9n61o4drY9kcz08ffwfUVJTC8&export=download&authuser=0

@@ -1,0 +1,1 @@
+meu grupo não possui nenhuma captura de quando estávamos apresentando.
